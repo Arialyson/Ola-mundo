@@ -8,4 +8,4 @@ Essa linha eu adicionei diretamente no site! QUE IMPRESSIONANTE!
 
 entrei no dia seguinte para exercitar o que aprendi 
 
-blus rock
+blus rock, rock and roll
