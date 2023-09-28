@@ -10,6 +10,4 @@ entrei no dia seguinte para exercitar o que aprendi
 
 reggae, rock, jazz
 
-hard rock cafe ou starbucks 
-
-o rato roel a roupa do rei e roma
+hard rock cafe 
