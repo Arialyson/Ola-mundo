@@ -10,3 +10,4 @@ entrei no dia seguinte para exercitar o que aprendi
 
 hakuma matata
 timao e pumba 
+mfumba maloka zubanba
