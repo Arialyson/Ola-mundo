@@ -8,6 +8,3 @@ Essa linha eu adicionei diretamente no site! QUE IMPRESSIONANTE!
 
 entrei no dia seguinte para exercitar o que aprendi 
 
-hakuma matata
-timao e pumba 
-mfumba maloka zubanba
